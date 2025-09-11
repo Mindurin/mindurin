@@ -4,7 +4,7 @@
 <img src="https://komarev.com/ghpvc/?username=Mindurin&color=6a4f7f&style=plastic&label=⠀⠀⠀⠀⟡⠀⠀⠀⠀">
 </p>
 <h1>Basic info for now</h1>
-kabu or meepu, systen host blablabla
+kabu or meepu, system host blablabla
 <br>
 any pronouns except she her unless close
 </div>
